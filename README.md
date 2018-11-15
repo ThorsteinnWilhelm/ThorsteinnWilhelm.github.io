@@ -1,2 +1,3 @@
 # ThorsteinnWilhelm.github.io
-Sælir sjóarar
+Osamacare
+Bush did 9/11
