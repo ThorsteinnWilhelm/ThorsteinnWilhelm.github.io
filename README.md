@@ -1,2 +1,2 @@
 # ThorsteinnWilhelm.github.io
-Osamacare
+Osamacare is your way to get better healthcare
