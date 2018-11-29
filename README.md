@@ -1,2 +1,2 @@
 # ThorsteinnWilhelm.github.io
-Osamacare is your way to get better healthcare
+Bush did 9/11
